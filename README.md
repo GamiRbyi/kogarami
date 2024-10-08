@@ -3,6 +3,6 @@ hello! i will explain the meaning of my ponytown status,
 
 ―⛔,   i'd like to be on my own/i don't want to talk too much
 
-―🌙,   busy(school, hw, drawing, doing things irl, or even sleeping)
+―🌙,   busy(school, hw, drawing, doing things irl, sleeping, or even chatting with my bf)
 
 ―💬,   please interact/talk with me, you can even cuddle to me
